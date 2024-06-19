@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security and ethical hacking 
 - 🌱 I’m currently learning in last year of college in Under graduate BSCIT
 - 💞️ I’m looking to collaborate on ideas of ethical hacking stuffs
-- 📫 to reach me just main me at amit9869362844@gmail.com 
+- 📫 to reach me just mail me at amit9869362844@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I am stil learning and trying to learn as fast as possible
 
